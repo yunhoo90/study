@@ -1,3 +1,0 @@
-Study
-
-this is tutorial
